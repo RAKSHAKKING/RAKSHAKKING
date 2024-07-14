@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @RAKSHAKKING
+- 👋 Hi, I’m @RAKSHAK KUMAR
 - 👀 I’m interested in Learning and Growing every day
 - 🌱 I’m currently learning Web Dev
 - 💞️ I’m looking for Intership
